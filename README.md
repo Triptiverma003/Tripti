@@ -1,1 +1,1 @@
-                                                          #Tripti
+#TRIPTI
